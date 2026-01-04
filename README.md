@@ -1,0 +1,1 @@
+{{{{1girl}}}}, brown hair,{{}},curved short hair, black eyes,artist:henreader,{{artist:healthyman,modare,atte7kusa,zurikishi}}, year_2023,adjust, coat,middle breast,men's school pants,school vest,white shirts/blush,{{embarrassed face,close mouth}}/standing, hand down,messy room, white wall,2 beds, no window,{{{best quality, amazing quality}}}
